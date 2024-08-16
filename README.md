@@ -1,2 +1,1 @@
-# DATA-CLEANING-HOSPITAL-SURVEY-PROJECT
-DATA-CLEANING HOSPITAL SURVEY PROJECT
+As a goal-oriented professional, I consider myself to have high standards of responsibility & commitment in all my duties. My dedication to excellence can be appreciated on my strong work ethic and relentless pursuit of results. I aim approaching challenges with tenacity, employing strategic thinking and perseverance, seeking to overcome obstacles & deliver outstanding outcomes. My academic background is Economics & Finances, but my master & professional experience is focused on Data Analytics. I worked for almost 2 years, in the Data Analytics field: more focused into finances, as a Junior Market Analyst & Order Managment.
